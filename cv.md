@@ -3,8 +3,8 @@
 ## Yevheniia Burlakova
 
 Phone: +380632877955
-Email: evgenijar.work@gmail.com
-Skype Login: zesiaromanovna
+    Email: evgenijar.work@gmail.com
+    Skype Login: zesiaromanovna
 
 ### About me
 
